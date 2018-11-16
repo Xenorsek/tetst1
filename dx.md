@@ -1,0 +1,1 @@
+Tutaj galaz noob
